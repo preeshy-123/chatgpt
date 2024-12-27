@@ -6,11 +6,9 @@ The disruption highlights the increasing dependence on AI technologies for every
 OpenAI has not yet released a detailed statement about the cause of the outage but has promised a thorough investigation to prevent similar issues in the future.
 
 For more information on the outage and updates from OpenAI, visit the link below:
-Click here [OpenAi](https://whomeenoaglauns.com/4/8707547)
+👉 Click here [OpenAi](https://whomeenoaglauns.com/4/8707547) 
 
-
-
-[ _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
-[ _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
-[ _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
-[ _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)
+[👉 _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
+[👉 _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
+[👉 _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)\
+[👉 _Click here to visit OpenAi_](https://whomeenoaglauns.com/4/8707547)
